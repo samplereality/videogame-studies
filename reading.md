@@ -1,0 +1,1 @@
+###Reading List* Ian Bogost, How to Do Things with Videogames (Minneapolis: University of Minnesota Press, 2011)* Alexander Galloway, Gaming: Essays on Algorithmic Culture (Minneapolis: University of Minnesota Press, 2006)* Various e-reserves and online material
